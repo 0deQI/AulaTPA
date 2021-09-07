@@ -1,6 +1,6 @@
 Kaue de Souza Hreczynski e Ezequiel Silva Souza
 Homenagem
-A este grande homem, que nos ensinou todo que sabemos hoje, amém, 17 neles, pew pew
+A este grande homem, que nos ensinou todo que sabemos hoje
 ***************,,,,*,*,,,,,,*/*/((///************/*///********///////////////(((
 **********************(#&%%&&%&&&&&@&%%&&&%((//////////////////////(((((((((((((
 ********************(%#(%&&&&&@&&&&&&&&&&&&&&%#(/////(((((((((((((((((((((((((((
